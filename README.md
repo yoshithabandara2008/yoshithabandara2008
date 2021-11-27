@@ -61,7 +61,7 @@
   
 > Phone Number :- <b><i>+94767073488</i></b>
   
-> Email :- <a href="https://mail.google.com/mail/u/0/?fs=1&to=rmysbrathnayake@gmail.com&tf=cm" ><b><i>rmysbrathnayake@gmail.com</i></b></a>
+> Email :- <a href="https://mail.google.com/mail/u/0/?fs=1&to=yoshitharathnayake2008@gmail.com&tf=cm" ><b><i>yoshitharathnayake2008@gmail.com</i></b></a>
   
   
 # Follow Me  
